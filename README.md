@@ -1,0 +1,1 @@
+ntfyz.ddns.net
